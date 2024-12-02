@@ -1,5 +1,6 @@
 # MeritKing 🏆  
-<img src="https://i.hizliresim.com/mt023fa.png" alt="MeritKing Resim" style="max-width: 100%;">  
+
+<a href="https://t.me/+lr-TNRFBi05kOTQ6" title="ResimLink - Resim Yükle" rel="nofollow"><img src="https://i.hizliresim.com/mt023fa.png" title="ResimLink - Resim Yükle" alt="ResimLink - Resim Yükle" data-canonical-src="https://i.hizliresim.com/mt023fa.png" style="max-width: 100%;"></a>
 
 Bahis dünyasının lider platformu **MeritKing**, yüksek oranlar ve canlı casino deneyimiyle kullanıcılarına eşsiz bir kazanç fırsatı sunuyor. Kolay kullanım ve güvenilir hizmetle siz de MeritKing dünyasına katılabilirsiniz!  
 
@@ -12,4 +13,4 @@ Bahis dünyasının lider platformu **MeritKing**, yüksek oranlar ve canlı cas
 4. **Güvenilir Ödeme:** Hızlı ve sorunsuz işlem garantisi.  
 
 ## MeritKing ile Kazanmaya Başla!  
-MeritKing’in sunduğu avantajlardan faydalanmak için [buraya tıklayın.](https://t.me/+tgpiwOSMtStjYzM0)  
+MeritKing’in sunduğu avantajlardan faydalanmak için [buraya tıklayın.](https://t.me/+lr-TNRFBi05kOTQ6)  
